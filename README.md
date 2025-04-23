@@ -1,0 +1,1 @@
+# Firman_2306107_Sistem-Pakar-Certainty-Factor-Fuzzy-Logic-
